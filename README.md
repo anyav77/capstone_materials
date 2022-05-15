@@ -10,7 +10,8 @@ https://vimeo.com/709780992
 ### Slides: 
 https://docs.google.com/presentation/d/13ie5C2uR39--x25wr9o3PxtXYiAPwcID4Bg7I1xxGhQ/edit?usp=sharing
 
-### Video: (uploading shortly)
+### Video: 
+https://vimeo.com/710036503/6a5dc12383
 
 
 ## Website Link:
